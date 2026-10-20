@@ -1,4 +1,12 @@
-## Hi there 👋
+## 'this is unfair! why ME?'
+![1000007690](https://github.com/user-attachments/assets/15669bfa-6aac-4398-818d-f499d4124fdf)
+         <img width="234" height="210" alt="1000007685" src="https://github.com/user-attachments/assets/8558ccd9-9b4a-453a-ae53-413f7efaa974" />  
+
+ <img width="735" height="878" alt="1000007412" src="https://github.com/user-attachments/assets/38cb5c1f-924c-4eb9-b5e6-dc778ad70eb2" />
+
+
+
+
 
 <!--
 **ober-redwines/Ober-redwines** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
