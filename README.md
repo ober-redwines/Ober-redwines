@@ -11,8 +11,8 @@
 <img width="566" height="281" alt="1000008045" src="https://github.com/user-attachments/assets/fa6940e9-834b-4ca0-8bcb-a774370b962f" />
 
 ![1000008043](https://github.com/user-attachments/assets/2d087c07-6327-41ac-a223-489801fd3ed4)
-mee?!!uhm yeahh
-  _______________                  
+i highly and purely accept i have some similar personalities in him?, why that face hey??
+  _______________     🫥🫥○0-----             
   <img width="333" height="333" alt="1000008026" src="https://github.com/user-attachments/assets/d1527ace-9fb5-417c-bc84-d8ca8f52b802" />
 
 
