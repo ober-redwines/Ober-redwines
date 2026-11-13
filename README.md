@@ -8,6 +8,19 @@
 ![1000007787](https://github.com/user-attachments/assets/cc06acf2-9573-4514-8394-20bf9b3556a8)![1000007788](https://github.com/user-attachments/assets/eb3dd152-9469-46f0-bd99-133a69fa5686)
 <img width="566" height="555" alt="1000007412" src="https://github.com/user-attachments/assets/b58d722d-fdef-49eb-a3ca-de14d223749c" /> please understand i have huge anxiety issues and i need comfort please do not use me as a backup friend/therapist and ignore my problems sometimes i need attention too :[
 ![1000007791](https://github.com/user-attachments/assets/2d583b0b-d973-4912-89bd-deb5f70aa2d9)
+<img width="498" height="281" alt="1000008045" src="https://github.com/user-attachments/assets/fa6940e9-834b-4ca0-8bcb-a774370b962f" />
+
+![1000008043](https://github.com/user-attachments/assets/2d087c07-6327-41ac-a223-489801fd3ed4)
+
+                       ![1000008019](https://github.com/user-attachments/assets/d1026a7d-ab38-4b4e-a833-cf31d663a9a2)
+
+
+
+
+
+
+
+
 
 i'm GENIULLY SO PISSED. I'M SO DAMN TIRED OF SOME DIFFERENT PEOPLE COPY MY IDEAS. MY COSPLAYS IDEAS, MY CREATIVE ONES. I AM ABSALUTELY TIRED PLEASE RESPECTFULY DO NOT COPY WHAT I MAKE AND DO I HAVE SEEN 7 PEOPLE DO THIS. I AM IN ANGER 
 
